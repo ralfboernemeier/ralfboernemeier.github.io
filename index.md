@@ -5,6 +5,7 @@ Der Goldendoodle ist die Kreuzung eines reinrassigen Golden Retriever mit einem 
 * Freundlich
 * Energisch
 * Erziehbar
+
 Zitat Carl Zuckmayer über Hunde:
 > Ein Leben ohne Hund ist ein Irrtum.
 
