@@ -10,3 +10,6 @@ Zitat Carl Zuckmayer über Hunde:
 > Ein Leben ohne Hund ist ein Irrtum.
 
 <img src="https://ralfb-web.de/Images/GeorgeOstsee.jpg"/>
+
+Created by Ralf
+https://ralfb-web.de
